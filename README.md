@@ -1,0 +1,1 @@
+# Dedu-o-do-Teorema-de-Torricelli
